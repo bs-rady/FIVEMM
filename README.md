@@ -1,0 +1,1 @@
+Are You Tired Of Punching On Accident On Your Fivem Server Like Your Opening A Menu And You Keep Punching!!! So This File Fixes It How It Works ? You Have To Hold The Right Click Button Then You Can Punch So Enjoy My Friends🌷😄😁
